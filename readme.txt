@@ -1,3 +1,3 @@
 Hello!!!!!
 
-I'm Iris, i'm genius.
+I'm Iris, i'm a genius.
